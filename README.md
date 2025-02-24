@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bernice-Njuguna
-- 👀 I’m interested in learning Software Development 
-- 🌱 I’m currently learning computer programming at IYF
+- 👀 I’m interested in learning Software Development and gaining not only theory but have the knoledge of interpretating Binary
+- 🌱 I’m currently learning computer programming at IYF and 
 - 💞️ I’m looking to collaborate with fellow students to become proficient in my it skills
 - 📫 How to reach me, whatsapp 0711612507, 🌐gmail- jaybeebernice0@gmail.com
 - 😄 Pronouns: Her
